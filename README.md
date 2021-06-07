@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BerkAksoy-hub
+- 👀 I’m interested in International Business and CSS.
+- 🌱 I’m currently learning data analysis and managerial accounting.
